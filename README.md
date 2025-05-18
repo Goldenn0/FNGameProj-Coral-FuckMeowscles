@@ -1,2 +1,1 @@
-# FNGameProj-Coral-FuckMeowscles
-NIGGA STOP USING MY GS
+# maaaaaaaaaaaaaaybe stop being dicks to my friends lmao
